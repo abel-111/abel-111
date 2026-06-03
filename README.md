@@ -69,8 +69,8 @@ I enjoy building practical projects that help me strengthen my technical and pro
 
 ## Connect With Me
 
-* GitHub: https://github.com/yourusername
-* LinkedIn: Add your LinkedIn profile link
+* GitHub: https://github.com/abel-111
+* LinkedIn: https://www.linkedin.com/in/abel-shibu-a61777306?utm_source=share_via&utm_content=profile&utm_medium=member_ios
 
 ---
 
